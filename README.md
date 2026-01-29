@@ -9,8 +9,8 @@ Ya que estaban rodeadas de árboles, quisieron ver qué tanto podían llegar a d
 Cuando llegaron, notaron algo indescriptible: no podían decir si era un portal o un lago vertical, aunque sabían que aquello parecía prácticamente imposible. Val, fascinada por lo que veía, quiso entrar, pero Mayo la detuvo, ya que no sabían qué podía haber más allá.
 
 Incluso con esa interrupción, el par de amigas decidió entrar...
-Nudo
 
+Nudo
 Después de algunas horas, Val abrió los ojos y vio un cielo animado, azul y despejado, con un sol radiante. Vio a Mayo a su lado, aún en un trance.
 
 —Mayooo, ¿estás bien? ¿Estás viva? —decía llorando.
